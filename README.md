@@ -1,0 +1,4 @@
+- 👋 Oii, sou a Lívia!!
+- 👀 Estudante de Programação :)
+- 💞️ Muito apaixonada por livros e novos aprendizados!
+- 📫 Vivendo em SP, mas o coração é de Minas ;)
